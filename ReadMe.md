@@ -1,5 +1,5 @@
 # 💫 About Me:
-💶 Eurico Santiago Climaco Rodrigues<br>👦🏽 18 Anos<br>🌆Coronel Murta - MG<br>🎒Formação em TI em andamento (IFNMG)<br>📚Cursando em Desenvolvimento Full Stack<br><br><br><br>Brazilian🟩🟨🟦 
+💶 Eurico Santiago Climaco Rodrigues<br>👦🏽 20 Anos<br>🌆Coronel Murta - MG<br>🎒Formação: TI (IFNMG), Ciência da computação (UNIFAL)<br>📚Cursando em Desenvolvimento Full Stack<br><br><br><br>Brazilian🟩🟨🟦 
 
 
 ## 🌐 Socials:
