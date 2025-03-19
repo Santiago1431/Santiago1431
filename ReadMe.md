@@ -1,5 +1,5 @@
 # 💫 About Me:
-💶 Eurico Santiago Climaco Rodrigues<br>👦🏽 20 Anos<br>🎒Formação: TI (IFNMG), Ciência da computação (UNIFAL)<br>📱DEV Mob iniciante <br><br><br><br>Brazilian🟩🟨🟦 
+💶 Eurico Santiago Climaco Rodrigues<br>👦🏽 20 Anos<br>🎒Formação: TI (IFNMG), Ciência da computação (UNIFAL)<br>📱DEV Mob iniciante<br><br>Brasil🟩🟨🟦 
 
 
 ## 🌐 Socials:
